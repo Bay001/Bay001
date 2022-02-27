@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bay001
-- 👀 I’m interested in noob
-- 🌱 I’m currently learning noob
-- 💞️ I’m looking to collaborate on noob
+- 👀 I’m interested i'am noob
+- 🌱 I’m currently learning i'am noob
+- 💞️ I’m looking to collaborate on i'am noob
 - 📫 How to reach me here thank u
 
 <!---
